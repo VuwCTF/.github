@@ -6,4 +6,4 @@ The club was founded in 2025.
 We regularly participate in CTF competitions, and are planning on hosting a CTF for students later in the year.
 
 ---
-The club will be open for new members to join very soon, so stay tuned.
+Join our club by filling out the form [here](https://forms.gle/zcXGUFB5rvzDbm6J7)!
